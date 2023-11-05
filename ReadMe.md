@@ -1,0 +1,1 @@
+Vì file game nặng tới 10gp nên em up source lên mega và google drive để đỡ tốn thời gian ạ
